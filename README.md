@@ -29,7 +29,7 @@ Teacher List
 23. Madlangbayan, Lenard G.
 24. 
 25. 
-26. 
+26. Manela, Jen Rejnej V.
 27. Maraan, Angelo F.
 28. 
 
